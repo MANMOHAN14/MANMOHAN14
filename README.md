@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **manmohan197814@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://www.linkedin.com/in/manmohan197814</h3>
 <p align="left">
 </p>
 
